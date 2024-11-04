@@ -5,8 +5,7 @@ Meu nome é _Victor Mantovani_, tenho 18 anos, e atualmente trabalho como auxili
 - Aceito qualquer tipo de ajuda, conhecimento nunca é demais. 😃
 - Aceito dicas sobre linguagens e técnicas para programar. 🤓
 - Se precisar de alguma ajuda em algum projeto, pode entrar em contato, toda experiência é valida 🦾
-- Eu dou o bumbum
-- Sou gay
+
 
 - Whatsapp (11 91226-7697) 📲
 -  [MeuLinkedin](https://www.linkedin.com/in/victor-gon%C3%A7alves-mantovani-a1b25820a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app) 👷
