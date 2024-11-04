@@ -9,3 +9,5 @@ Meu nome é _Victor Mantovani_, tenho 18 anos, e atualmente trabalho como auxili
 
 - Whatsapp (11 91226-7697) 📲
 -  [MeuLinkedin](https://www.linkedin.com/in/victor-gon%C3%A7alves-mantovani-a1b25820a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app) 👷
+
+ ![](https://media1.tenor.com/m/mCiM7CmGGI4AAAAd/naruto.gif)
